@@ -7,4 +7,4 @@
 - What do you still need to practice or learn? How will you do that? Do you need to adjust your calendar in order to do that?
 * My Vocab on this is somewhat shotty. I think ill re-read the assignment page when im less tired.
 - What questions do you still have? How will you get the answers you need?
-* More or less, I need to understand the vocab better to uses these new skills more effectivly
+* More or less, I need to understand the vocab better to use these new skills more effectively. I can always re-read the assignment or goodle a few things to achive that. 
